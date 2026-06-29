@@ -1,4 +1,4 @@
-# 
+# Top IObit Uninstaller extensions pour Mac OS | Léger IObit Uninstaller extensions pour PC Windows. Avec informations système et fonctionnalité de recherche — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
